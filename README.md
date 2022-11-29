@@ -1,1 +1,1 @@
-# rsschool-cv
+https://viktorphp84.github.io/rsschool-cv/cv
